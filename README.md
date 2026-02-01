@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/9574da7a-5bb8-4b51-a812-d87be5c2aba3) ㅤㅤㅤㅤㅤ ⤸
+ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ<img width="1001" height="736" alt="Image" src="https://github.com/user-attachments/assets/087acd58-91bb-4c46-885f-9d26c75edeb0" /> ㅤㅤㅤㅤㅤ ⤸
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ${\textsf{\color{#f7d1d8}family is trapped in my basement!!! /j}}$
