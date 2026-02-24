@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ<img width="1001" height="736" alt="Image" src="https://github.com/user-attachments/assets/087acd58-91bb-4c46-885f-9d26c75edeb0" /> ㅤㅤㅤㅤㅤ 
+ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ<img width="736" height="579" alt="Image" src="https://github.com/user-attachments/assets/6b9d2f6f-9569-4c60-bdf6-3ab6ada226a5" /> ㅤㅤㅤㅤㅤ 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-${\textsf{\color{#f7d1d8}REVAMPP}}$
+${\textsf{\color{#f7d1d8}"Beneath the water lives an endless abyss!"}}$
