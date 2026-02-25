@@ -2,3 +2,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ${\textsf{\color{#f7d1d8}"Beneath the water lives an endless abyss!"}}$
+<a class="tag" href="https://guns.lol/cyrenee" target="_blank" rel="noopener noreferrer">guns </a>
+<a class="tag" href="https://gardeny.straw.page" target="_blank" rel="noopener noreferrer">straw </a>
