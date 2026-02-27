@@ -3,4 +3,4 @@
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ${\textsf{\color{#f7d1d8}"Beneath the water lives an endless abyss!"}}$   ㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <a class="tag" href="https://guns.lol/cyrenee" target="_blank" rel="noopener noreferrer">guns </a>   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<a class="tag" href="https://gardeny.straw.page" target="_blank" rel="noopener noreferrer">straw </a>
+
