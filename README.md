@@ -2,4 +2,3 @@
  ${\textsf{\color{#ffb6c1}"I'll stop loving you once a clock hits 26h"}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <a class="tag" href="https://ruriayee.straw.page" target="_blank" rel="noopener noreferrer">straw</a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <a class="tag" href="https://ruria.atabook.org/" target="_blank" rel="noopener noreferrer">ata</a>
-<img width="600" height="266" alt="Image" src="https://github.com/user-attachments/assets/c152fd96-522e-45ea-8332-7e27feda91b9" />
